@@ -1,1 +1,2 @@
 Shelbi Wakamatsu
+wakamats@oregonstate.edu
